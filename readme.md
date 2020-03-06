@@ -1,0 +1,1 @@
+# OSIS 2020 labs Trotsky Daniil, 753504
